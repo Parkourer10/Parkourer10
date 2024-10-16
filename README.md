@@ -1,1 +1,1 @@
-Hello i like ducks & catz
+my real name is sigma 🗿🗿
